@@ -1,0 +1,1 @@
+"The ALX experinece has been challenging from day zero and am yet to understand"
